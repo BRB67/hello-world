@@ -191,4 +191,20 @@ Peace and Blessings to ALL
 22 Young sinner I'm ready to fail.
 23 whY Love Gives Up? 
 
+## Copied Shakespeasre's Sonnet 23
+As an unperfect actor on the stage
+Who with his fear is put beside his part,
+Or some fierce thing replete with too much rage,
+Whose strength’s abundance weakens his own heart;
+So I for fear of trust forget to say
+The perfect ceremony of love’s rite,
+And in mine own love’s strength seem to decay,
+O’ercharged with burden of mine own love’s might.
+O, let my books be then the eloquence
+And dumb presagers of my speaking breast,
+Who plead for love and look for recompense
+More than that tongue that more hath more expressed.
+ O, learn to read what silent love hath writ.
+ To hear with eyes belongs to love’s fine wit.
+
 #Thank you for your time and Social Network Profiles
