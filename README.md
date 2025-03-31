@@ -1,4 +1,6 @@
-# heLLo world Peace and God Bless All
+# Hello world 
+# Greetings and Peace 
+# God Bless All
 A collection of ammatuer writing and resources related to Language Learning and Communication
 
 
@@ -32,13 +34,13 @@ God is sow, so, sew GoOD GOoD GO<3D grEaT.
 Praying for yOur Health, Happiness, and Humanity...
 
 I'm sorry I can't solve all the problems, I am trying to focus on what I can do.
-Thinking first nonverbally and verbally.
+Thinking nonverbally and verbally.
 Nonetheless, I can consider any request... How may I help?
 
 New assumptions...
 God is sow, so, sew GoOD, GOoD, GO<3D, grEaT...
 
-You all matter. Good thoughts can save what matters.
+You all matter. Good thoughts can help save what matters.
 
 American English (A Creole mixture of Languages)...
 a = 1, A = 1
@@ -82,11 +84,11 @@ Love.
 L = 12, O = 15, V = 22, E = 5 
 Love = 12+15+22+5 = 54...
 
-Play
+Play.
 P = 16, L = 12, A = 1, Y = 25
 play = 16+12+1+25 = 54...?
 
-Thank
+Thank.
 T = 20, H = 8, A = 1, N = 14, K = 11
 Thank = 20+8+1+14+11 = 54…
 
@@ -133,7 +135,7 @@ And, tender churl, mak’st waste in niggarding.
  
 ..abdcefghijklmnopqrsTuvwxyz
 ..abdcefgHijklmnopqrstuvwxyz
-..Abdcefghijklmnopqrstuvwxyz
+..abdcefghIjklmnopqrstuvwxyz
 ..abcdefghijklmNopqrstuvwxyz
 ..abcdefghijKlmnopqrstuvwxyz
 
@@ -157,7 +159,7 @@ What is this world once filled with terror
 Why can’t I be one to correct some errors
 Maybe I need to first see the light
 Before God helps me make more things right
-
+...
 Biology https://openstax.org/details/books/biology-2e/
 Anatomy
 https://openstax.org/details/books/anatomy-and-physiology-2e
@@ -167,8 +169,8 @@ Peace and Blessings to ALL
 
 
 
-01 Sivens (JUST M5mories) 
-02 or Know Thyself....?
+01 Nobody (JUST M5mories) 
+02 An Attempt Know Myself....?
 03 Understanding God Loves Y'all.
 04 Gives us time to think before fall.
 05 Life sometimes ask that we respect.
@@ -207,4 +209,17 @@ More than that tongue that more hath more expressed.
  O, learn to read what silent love hath writ.
  To hear with eyes belongs to love’s fine wit.
 
-#Thank you for your time and Social Network Profiles
+## Shop with Love
+@ https://www.walmart.com/
+
+## E-Reading Tools
+Best-Buy Ereaders: https://www.bestbuy.com/site/searchpage.jsp?st=ereader&_dyncharset=UTF-8&_dynSessConf=&id=pcat17071&type=page&sc=Global&cp=1&nrp=&sp=&qp=&list=n&af=true&iht=y&usc=All+Categories&ks=960&keys=keys
+
+## Reading Recommendations
+... Please Try Reading: Genesis Begins Again = https://www.goodreads.com/book/show/25753113-genesis-begins-again
+... Please Try rEading: Native American Songs and Poems = https://www.goodreads.com/book/show/19350332-native-american-songs-and-poems?from_search=true&from_srp=true&qid=lUMkCrxpTa&rank=1
+... Please Try reAding: Great Poems by American Women = https://store.doverpublications.com/products/9780486112657?_pos=3&_sid=4d4488700&_ss=r
+... Please Try reaDing: African American Poetry = https://www.amazon.com/African-American-Poetry-Anthology-1773-1927-Editions/dp/0486296040/ref=sr_1_1?crid=1LMJPZFUMZY9P&dib=eyJ2IjoiMSJ9.WKAi7yQ3HP46PhgaOJruU8qkXHaw6z8uHsTbyor_N47yz5XETrTJnlhlPt_PxxAva2C53wbUt-AYoxZmCMKEi8Bszewu12cGoEhpy0cKkRQj-OVa62aV-Opxmbkk50uGbQv3puB4VVcs2pTdVifMdIzp9txBhtLyO2CZITlfts0HZxrC93r8f07HtEO9BIZONnwUWoDH8IcQpaV3c8hC4i7hbB4KbmkcSUFac4tLwCc.wOTyHCWr1V7ENkZ5YHtpo7OuITaeeR1ix-J9WmpJAdA&dib_tag=se&keywords=african+american+poetry+dover&qid=1743431916&sprefix=african+american+poetry+dover%2Caps%2C140&sr=8-1
+
+
+#Thank you for your time and Social-Network-Profiles
